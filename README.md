@@ -1,0 +1,1 @@
+ [https://aapodshivalov.github.io/rsschool-cv/cv](https://aapodshivalov.github.io/rsschool-cv/cv)
